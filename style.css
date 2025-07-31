@@ -1,0 +1,16 @@
+/* Ini adalah file styling untuk proyek web saya */
+body {
+    font-family: Arial, sans-serif;
+    background-color: #f0f0f0; /* Warna latar belakang abu-abu muda */
+    color: #333; /* Warna teks abu-abu gelap */
+    margin: 20px;
+    padding: 0;
+}
+
+h1 {
+    color: #0056b3; /* Warna biru untuk judul */
+}
+
+p {
+    line-height: 1.6;
+}
