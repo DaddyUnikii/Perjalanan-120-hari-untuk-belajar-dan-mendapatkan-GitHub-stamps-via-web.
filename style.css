@@ -2,7 +2,7 @@
 body {
     font-family: Arial, sans-serif;
     background-color: #e0f7fa; /* Warna latar belakang abu-abu muda */
-    color: #333; /* Warna teks abu-abu gelap */
+    color: #334; /* Warna teks abu-abu gelap */
     margin: 18px;
     padding: 0;
 }
@@ -12,5 +12,5 @@ h1 {
 }
 
 p {
-    line-height: 1.6;
+    line-height: 1.5;
 }
