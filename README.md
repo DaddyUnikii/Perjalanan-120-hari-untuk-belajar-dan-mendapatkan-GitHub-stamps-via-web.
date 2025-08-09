@@ -7,3 +7,6 @@ aku ga entos coding
 pokok onok kegiatan ae wklwkw
 
 oyi lurrr sikat wesss
+
+
+waYAHE macak kerjo maneh, 
