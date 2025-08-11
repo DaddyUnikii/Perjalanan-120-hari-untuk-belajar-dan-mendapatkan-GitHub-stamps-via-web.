@@ -10,3 +10,7 @@ oyi lurrr sikat wesss
 
 
 waYAHE macak kerjo maneh, 
+
+saiki malah anakku loro kupinge
+efek pilek kyk e
+daddi loro juga kuping e
