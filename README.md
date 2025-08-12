@@ -14,3 +14,6 @@ waYAHE macak kerjo maneh,
 saiki malah anakku loro kupinge
 efek pilek kyk e
 daddi loro juga kuping e
+
+wes waras wesan, tapi sek kyk lemes bocah e,
+garai ga tenang ae lek anak loro iku
