@@ -21,3 +21,6 @@ garai ga tenang ae lek anak loro iku
 back to normal day
 tapi anakku sek lemes kyke, 
 rupane kucel kabeh
+
+
+yioyi
