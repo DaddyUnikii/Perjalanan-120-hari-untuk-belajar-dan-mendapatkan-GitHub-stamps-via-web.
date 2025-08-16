@@ -24,3 +24,6 @@ rupane kucel kabeh
 
 
 yioyi
+
+wanjeng jang njegil nemen watuk e
+wes 3 dino iki buset
