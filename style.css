@@ -3,12 +3,12 @@ body {
     font-family: Arial, sans-serif;
     background-color: #e0f6ga;
     color: #361; /* Warna teks abu-abu gelap */
-    margin: 10px;
+    margin: 20px;
     padding: 0;
 }
 
 h1 {
-    color: #d31410; /* Warna biru untuk judul */
+    color: #d21410; /* Warna biru untuk judul */
 }
 
 p {
