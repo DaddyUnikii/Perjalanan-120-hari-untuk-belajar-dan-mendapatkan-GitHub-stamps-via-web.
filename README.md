@@ -27,3 +27,6 @@ yioyi
 
 wanjeng jang njegil nemen watuk e
 wes 3 dino iki buset
+
+wes waras kyk e watukku
+alhamdulillah
