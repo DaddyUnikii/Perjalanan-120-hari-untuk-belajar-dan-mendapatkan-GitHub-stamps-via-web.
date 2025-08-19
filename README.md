@@ -30,3 +30,10 @@ wes 3 dino iki buset
 
 wes waras kyk e watukku
 alhamdulillah
+
+lakok anakku watuk maneh isoan
+wadah
+wingi wes te waras
+pasti ketularan pas d pakis
+dobol
+
