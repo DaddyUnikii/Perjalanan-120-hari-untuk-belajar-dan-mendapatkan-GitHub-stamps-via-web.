@@ -34,6 +34,9 @@ alhamdulillah
 lakok anakku watuk maneh isoan
 wadah
 wingi wes te waras
-pasti ketularan pas d pakis
+
 dobol
 
+kate golek acara maneh isoan
+ga entek2 acarane
+duik prasane kari ngeruk
