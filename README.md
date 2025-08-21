@@ -40,3 +40,9 @@ dobol
 kate golek acara maneh isoan
 ga entek2 acarane
 duik prasane kari ngeruk
+
+munyer sak malang
+golek obat
+jan ga nemu
+obat lawas ancen
+tapi buset angel e golekane
