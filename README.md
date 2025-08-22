@@ -46,3 +46,8 @@ golek obat
 jan ga nemu
 obat lawas ancen
 tapi buset angel e golekane
+
+buset overtake ga elig
+lawak poll 
+wes modal 600$ ++
+duobolll
