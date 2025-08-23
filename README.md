@@ -51,3 +51,7 @@ buset overtake ga elig
 lawak poll 
 wes modal 600$ ++
 duobolll
+
+sabtu sabtu sek ganok kejelasan overtake
+jasik project opo iki cok
+ruemek janan
