@@ -55,3 +55,7 @@ duobolll
 sabtu sabtu sek ganok kejelasan overtake
 jasik project opo iki cok
 ruemek janan
+
+sek pancet ganok penjelasan isoan
+modal akeh iku pakeeee
+wadahhh isone
