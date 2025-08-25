@@ -59,3 +59,6 @@ ruemek janan
 sek pancet ganok penjelasan isoan
 modal akeh iku pakeeee
 wadahhh isone
+
+
+dadi elig coyyyy
