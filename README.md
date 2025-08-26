@@ -62,3 +62,7 @@ wadahhh isone
 
 
 dadi elig coyyyy
+
+elig tapi ngabu sih wkwkw 
+gapopo
+andai ga vesting se JP 
