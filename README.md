@@ -66,3 +66,6 @@ dadi elig coyyyy
 elig tapi ngabu sih wkwkw 
 gapopo
 andai ga vesting se JP 
+
+alhamdulillah nge pump
+semoga lah semogaaaaa
