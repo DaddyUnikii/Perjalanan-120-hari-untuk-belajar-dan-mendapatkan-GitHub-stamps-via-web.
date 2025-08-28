@@ -69,3 +69,7 @@ andai ga vesting se JP
 
 alhamdulillah nge pump
 semoga lah semogaaaaa
+
+
+garap opo neh yo. wingi sih kurang2 garapan e
+cairan ga sepiro., wes wes angel wes
