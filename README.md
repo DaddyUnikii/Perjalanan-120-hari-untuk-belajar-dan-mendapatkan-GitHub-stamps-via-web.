@@ -73,3 +73,5 @@ semoga lah semogaaaaa
 
 garap opo neh yo. wingi sih kurang2 garapan e
 cairan ga sepiro., wes wes angel wes
+
+bismillah nge pump 1$ ya allah $TAKE
