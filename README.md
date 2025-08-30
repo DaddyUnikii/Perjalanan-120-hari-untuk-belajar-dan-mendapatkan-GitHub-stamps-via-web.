@@ -75,3 +75,7 @@ garap opo neh yo. wingi sih kurang2 garapan e
 cairan ga sepiro., wes wes angel wes
 
 bismillah nge pump 1$ ya allah $TAKE
+
+nandi2 demo, ngeri pakkk
+semoga seng demo aman2, di beri keselamatan
+DPR ben di obong kabeh ae, wong2 ga kanggo anjeng
