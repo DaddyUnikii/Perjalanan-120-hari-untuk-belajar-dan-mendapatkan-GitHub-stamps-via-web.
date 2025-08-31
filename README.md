@@ -79,3 +79,7 @@ bismillah nge pump 1$ ya allah $TAKE
 nandi2 demo, ngeri pakkk
 semoga seng demo aman2, di beri keselamatan
 DPR ben di obong kabeh ae, wong2 ga kanggo anjeng
+
+stay safe pendemo 
+bakar ae ancen, tapi bakar e ojok ngawur rek
+bakar seng pemerintah ae
