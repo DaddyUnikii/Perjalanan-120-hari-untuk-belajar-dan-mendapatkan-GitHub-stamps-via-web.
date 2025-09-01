@@ -83,3 +83,6 @@ DPR ben di obong kabeh ae, wong2 ga kanggo anjeng
 stay safe pendemo 
 bakar ae ancen, tapi bakar e ojok ngawur rek
 bakar seng pemerintah ae
+
+anakku belajar online , gara2 demo rame
+ga biasa belajar online kyk e, isin2 wkwkwk
