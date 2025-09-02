@@ -86,3 +86,8 @@ bakar seng pemerintah ae
 
 anakku belajar online , gara2 demo rame
 ga biasa belajar online kyk e, isin2 wkwkwk
+
+
+anjay $Take ngepump, wes ta doll pisan wkkwkw
+gapopo wes., urung rejeki
+tapi wulan ngarep sek entuk sih, mugo tambah pump
