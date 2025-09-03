@@ -91,3 +91,6 @@ ga biasa belajar online kyk e, isin2 wkwkwk
 anjay $Take ngepump, wes ta doll pisan wkkwkw
 gapopo wes., urung rejeki
 tapi wulan ngarep sek entuk sih, mugo tambah pump
+
+lapo yo dino iki
+oh iyo ngkok tuku mie ayam
