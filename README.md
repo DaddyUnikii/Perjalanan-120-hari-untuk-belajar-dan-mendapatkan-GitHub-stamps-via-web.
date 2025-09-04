@@ -94,3 +94,6 @@ tapi wulan ngarep sek entuk sih, mugo tambah pump
 
 lapo yo dino iki
 oh iyo ngkok tuku mie ayam
+
+dino iki kyk kudu ngamuk2 ae
+pdhl bojo ku seng lagi mens wkwkwk
