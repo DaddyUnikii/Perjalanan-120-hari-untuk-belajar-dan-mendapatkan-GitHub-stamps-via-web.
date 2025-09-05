@@ -97,3 +97,7 @@ oh iyo ngkok tuku mie ayam
 
 dino iki kyk kudu ngamuk2 ae
 pdhl bojo ku seng lagi mens wkwkwk
+
+mencret maneh coook anakku seng lanag
+duobol
+kok uonok ae yo janan
