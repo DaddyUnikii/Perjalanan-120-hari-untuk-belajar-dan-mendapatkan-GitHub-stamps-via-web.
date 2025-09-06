@@ -101,3 +101,7 @@ pdhl bojo ku seng lagi mens wkwkwk
 mencret maneh coook anakku seng lanag
 duobol
 kok uonok ae yo janan
+
+
+durung waras i, 
+bismillah ndang waras
