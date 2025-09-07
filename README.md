@@ -105,3 +105,7 @@ kok uonok ae yo janan
 
 durung waras i, 
 bismillah ndang waras
+
+hadu durung waras. sek pancet mencret
+tapi wes ga getih en
+mek sitik2 tapi peng akeh metune
