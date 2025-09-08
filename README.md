@@ -109,3 +109,5 @@ bismillah ndang waras
 hadu durung waras. sek pancet mencret
 tapi wes ga getih en
 mek sitik2 tapi peng akeh metune
+
+sek durung waras on... suwe men buset
