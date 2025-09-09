@@ -111,3 +111,8 @@ tapi wes ga getih en
 mek sitik2 tapi peng akeh metune
 
 sek durung waras on... suwe men buset
+
+kyk e wes mulai waras
+alhamdulillah
+tapi malah anak wedok saiki gatelen awake
+jan arek2 iki onok ae, kesabaran di uji
