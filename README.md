@@ -116,3 +116,6 @@ kyk e wes mulai waras
 alhamdulillah
 tapi malah anak wedok saiki gatelen awake
 jan arek2 iki onok ae, kesabaran di uji
+
+tenanan waras iki kyk e
+alhamdulillah
