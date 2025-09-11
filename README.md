@@ -119,3 +119,7 @@ jan arek2 iki onok ae, kesabaran di uji
 
 tenanan waras iki kyk e
 alhamdulillah
+
+back to routinity..
+tapi pancet masalah utama hidup
+ekonomi yang semakin memburuk asu asu
