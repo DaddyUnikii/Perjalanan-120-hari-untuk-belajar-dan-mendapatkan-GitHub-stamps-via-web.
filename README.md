@@ -128,3 +128,6 @@ ekonomi yang semakin memburuk asu asu
 wes absen telat
 internet bosok.
 asu tenan i
+
+wanjer yopo bertahan hidup iki, cicilan sek suwe.
+keuangan menipis poll iki fakkk
