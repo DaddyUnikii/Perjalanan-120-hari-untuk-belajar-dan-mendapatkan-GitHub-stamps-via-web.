@@ -131,3 +131,5 @@ asu tenan i
 
 wanjer yopo bertahan hidup iki, cicilan sek suwe.
 keuangan menipis poll iki fakkk
+
+hadu ngiantok poll dino iki
