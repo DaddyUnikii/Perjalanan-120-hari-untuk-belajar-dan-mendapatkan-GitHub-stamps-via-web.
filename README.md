@@ -133,3 +133,7 @@ wanjer yopo bertahan hidup iki, cicilan sek suwe.
 keuangan menipis poll iki fakkk
 
 hadu ngiantok poll dino iki
+
+yopo iki, keuangan e iki yopoooo
+wah wah wah
+ayahab poll iki
