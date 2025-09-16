@@ -137,3 +137,5 @@ hadu ngiantok poll dino iki
 yopo iki, keuangan e iki yopoooo
 wah wah wah
 ayahab poll iki
+
+yopo iki yopo yopo yopo
