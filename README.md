@@ -139,3 +139,6 @@ wah wah wah
 ayahab poll iki
 
 yopo iki yopo yopo yopo
+
+maen game terus, sesat anjay
+garapan akeh seng miss
