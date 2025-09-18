@@ -142,3 +142,6 @@ yopo iki yopo yopo yopo
 
 maen game terus, sesat anjay
 garapan akeh seng miss
+
+wong2 JP brutal njer, garapan seng ta skip rata2 malah JP
+wedus tenan
