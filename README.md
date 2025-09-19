@@ -145,3 +145,5 @@ garapan akeh seng miss
 
 wong2 JP brutal njer, garapan seng ta skip rata2 malah JP
 wedus tenan
+
+brooo asli, ipes cairan iki , dobol tenan
