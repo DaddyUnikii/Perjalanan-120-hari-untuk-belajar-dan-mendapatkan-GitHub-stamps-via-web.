@@ -153,3 +153,6 @@ yopo iki reek wadahhhh mumet asli wesss
 ayo reeek ndang cairrrr, kebutuhan e akeh iki
 
 lurr tulung luuurrr, keuangan e menipis poll lurrr
+
+malah longsor kabeh isoan
+wes jannnn mbohhh
