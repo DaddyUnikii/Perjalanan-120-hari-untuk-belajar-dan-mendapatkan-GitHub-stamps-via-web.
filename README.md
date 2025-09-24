@@ -156,3 +156,5 @@ lurr tulung luuurrr, keuangan e menipis poll lurrr
 
 malah longsor kabeh isoan
 wes jannnn mbohhh
+
+yoo ngaceng neh iki, ayo ayo seng duwurrr
