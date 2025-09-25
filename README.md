@@ -158,3 +158,6 @@ malah longsor kabeh isoan
 wes jannnn mbohhh
 
 yoo ngaceng neh iki, ayo ayo seng duwurrr
+
+wadah mudun maneh i
+yopo iki jan asi
