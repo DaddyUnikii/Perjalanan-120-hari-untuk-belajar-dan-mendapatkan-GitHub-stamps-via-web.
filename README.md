@@ -161,3 +161,5 @@ yoo ngaceng neh iki, ayo ayo seng duwurrr
 
 wadah mudun maneh i
 yopo iki jan asi
+
+mayan overtake membantu keuangan sedikit :))
