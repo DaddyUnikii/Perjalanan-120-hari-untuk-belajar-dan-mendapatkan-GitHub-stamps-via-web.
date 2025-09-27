@@ -163,3 +163,6 @@ wadah mudun maneh i
 yopo iki jan asi
 
 mayan overtake membantu keuangan sedikit :))
+
+yopo rek , polah e arek cilik2 iki
+onoook ae, mumet aku
