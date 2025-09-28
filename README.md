@@ -166,3 +166,6 @@ mayan overtake membantu keuangan sedikit :))
 
 yopo rek , polah e arek cilik2 iki
 onoook ae, mumet aku
+
+alhamdulillah service mobil e ga larang2
+fak cairane kok ngene bgt yak
