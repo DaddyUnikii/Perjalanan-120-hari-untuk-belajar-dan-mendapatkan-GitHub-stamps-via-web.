@@ -172,3 +172,6 @@ fak cairane kok ngene bgt yak
 
 yopo iki rek mumet iki reeek
 infone rekk info infoooo
+
+dino iki mood ku rodok ga enak
+kyk yopo ngono, mboh wes
