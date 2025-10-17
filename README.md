@@ -177,3 +177,6 @@ dino iki mood ku rodok ga enak
 kyk yopo ngono, mboh wes
 
 yopo rek, ndi cairan e iki
+
+mumet iki joooo, butuh suntikan dana
+
