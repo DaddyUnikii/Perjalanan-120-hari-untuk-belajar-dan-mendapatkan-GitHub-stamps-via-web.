@@ -180,3 +180,4 @@ yopo rek, ndi cairan e iki
 
 mumet iki joooo, butuh suntikan dana
 
+malah longsor kabeh isoan, dobol dobol
