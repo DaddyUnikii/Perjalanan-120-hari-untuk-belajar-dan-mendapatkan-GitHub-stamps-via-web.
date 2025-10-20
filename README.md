@@ -183,3 +183,5 @@ mumet iki joooo, butuh suntikan dana
 malah longsor kabeh isoan, dobol dobol
 
 yopo iki rek, mumet loppp iki
+
+lha ndi iki cairane iki, ga caer caer, :))
